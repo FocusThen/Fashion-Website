@@ -8,6 +8,6 @@
 
 ### Credits
 Designer: https://dribbble.com/MAXIMNILOV
-Workflow: https://dribbble.com/shots/4888809-Toni-Guy
+Design: https://dribbble.com/shots/4888809-Toni-Guy
 
 Youtube & Tutorial video: https://www.youtube.com/watch?v=kzVgkrCiDEo
